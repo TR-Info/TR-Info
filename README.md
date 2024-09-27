@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil de TR-INFO - IT Analyst | Tech Support | Analista de Testes Júnior | Metodologia Ágil | Scrum | Kanban  😁
+## Bem-vindo(a) ao perfil de TR-INFO - IT Analyst | Tech Support | Analista de Testes Júnior | Metodologia Ágil | Scrum | Kanban  
 
  <div>
    <a href="https://https://github.com/TR-Info">
